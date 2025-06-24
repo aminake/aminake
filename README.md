@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @aminake
 - 👀 I’m interested in c++ c# python 
 - 🌱 I’m currently learning  python c++
-- 📫 How to reach me discord:osuruganotu51🚚
+- 📫 How to reach me arda.1337🚚
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: I love mcqueen
 
